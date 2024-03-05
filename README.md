@@ -8,7 +8,7 @@
 - ⚡ Fun fact: There are twice as many kangaroos in Australia as there are people :smiley:
 
 - ### Get to know me more
-- [![image](https://github.com/Shevnon/Shevnon/assets/161952555/8a431a79-19af-4e05-bff1-d79e2b2b7906)](https://public.tableau.com/app/profile/chinonso.ekezie/vizzes) [![image](https://github.com/Shevnon/Shevnon/assets/161952555/f9ab6537-be1c-4b2f-a521-55f6aa0de051)]()[![image](https://github.com/Shevnon/Shevnon/assets/161952555/846819a4-25ef-42dc-9093-86c30bab77a9)]() [![image](https://github.com/Shevnon/Shevnon/assets/161952555/309e0011-5f4c-4a02-a658-1200a7b6a0d8)]() 
+- [![image](https://github.com/Shevnon/Shevnon/assets/161952555/8a431a79-19af-4e05-bff1-d79e2b2b7906)](https://public.tableau.com/app/profile/chinonso.ekezie/vizzes) [![image](https://github.com/Shevnon/Shevnon/assets/161952555/f9ab6537-be1c-4b2f-a521-55f6aa0de051)](https://www.linkedin.com/public-profile/settings)[![image](https://github.com/Shevnon/Shevnon/assets/161952555/846819a4-25ef-42dc-9093-86c30bab77a9)](https://x.com/_Shevnon?t=cisOXZyLl1bhxZoB_Ghokw&s=09) [![image](https://github.com/Shevnon/Shevnon/assets/161952555/309e0011-5f4c-4a02-a658-1200a7b6a0d8)](https://www.instagram.com/shevnon?utm_source=qr&igsh=MzNlNGNkZWQ4Mg==) 
 
 
  
