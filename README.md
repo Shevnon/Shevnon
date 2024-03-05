@@ -1,7 +1,7 @@
 -### Welcome to my profile 😎!
 - 👋 Hi, I am Ekezie Chinonso,I am a Data Analyst.
 -  :earth_africa: I reside in Abuja, Nigeria.
--:relaxed:  I’m interested in Data Analysis and Visualization.
+- ☺️I’m interested in Data Analysis and Visualization.
 - :muscle: I’m currently learning **Excel**,**Tableau**,**Power** **BI**,**Sql**,**Python** Programming Languages.
 - 💞️ I’m looking to collaborate on Data Analysis Projects.
 - 📫 How to reach me :e-mail: Ekezie.shev@gmail.com
