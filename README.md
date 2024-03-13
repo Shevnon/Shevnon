@@ -2,7 +2,7 @@
 - 👋 Hi, I am Ekezie Chinonso,I am a Data Analyst.
 -  :earth_africa: I reside in Abuja, Nigeria.
 - ☺️I’m interested in Data Analysis and Visualization.
-- :muscle: I’m currently learning **Excel**,**Tableau**,**Power** **BI**,**Sql**,**Python** Programming Languages.
+- :muscle: I’m currently learning **Excel**,**Tableau**,**Power** **BI**,**Sql** and **Python** Programming Language
 - 💞️ I’m looking to collaborate on Data Analysis Projects.
 - 📫 How to reach me :e-mail: Ekezie.shev@gmail.com
 - ⚡ Fun fact: There are twice as many kangaroos in Australia as there are people :smiley:
